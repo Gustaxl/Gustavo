@@ -12,4 +12,4 @@ gustavodaluz734@gmail.com
 @gusta.apx
 
 
-![](https://media.tenor.com/OXepaQk1MOwAAAAM/bugs-bunny-multiversus.gif)
+![](https://media1.tenor.com/m/QzxDosWZMF0AAAAC/schmoovin-jujutsu-kaisen.gif)
